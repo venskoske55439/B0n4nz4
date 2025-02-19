@@ -1,7 +1,7 @@
-# <a href="https://t2m.io/yOGTdjBQ">Sweet Bonanza nasıl oynanır?</a>
+# <a href="https://tinyurl.com/nrewu918">Sweet Bonanza nasıl oynanır?</a>
 Sweet Bonanza ile kazancınızı zirveye taşıyın! Yüksek oranlar ve avantajlı bahis seçenekleriyle eğlenceye doyarken büyük ödülleri yakalayın!
 
-<a href="https://t2m.io/yOGTdjBQ" title="Sweet Bonanza">
+<a href="https://tinyurl.com/nrewu918" title="Sweet Bonanza">
   <img src="https://i.ibb.co/ZQQ94rV/663be962-f013-42a2-af4b-0f8592e82bcb.png" alt="Sweet Bonanza Görseli" style="max-width: 100%; border: 2px solid #ddd;
   border-radius: 10px;">
 </a>
